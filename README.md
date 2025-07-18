@@ -10,5 +10,5 @@
 DexterWernJr/DexterWernJr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
     --->
---->
-    ($5 million and it's called I 15 -T20: JARED
+    --->
+        ($ $5 million and it's called I 15 -T20: JARED
