@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DexterWernJr
+    - 👋 Hi, I’m @DexterWernJr
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
@@ -11,3 +11,4 @@ DexterWernJr/DexterWernJr is a ✨ special ✨ repository because its `README.md
 You can click the Preview link to take a look at your changes.
 --->
 --->
+    ($5 million and it's called I 15 
