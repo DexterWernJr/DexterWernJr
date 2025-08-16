@@ -6,9 +6,3 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
         -  🐜.. 🏖️🪂.🗽📙| 🫧
-        <!--- ðG @ JARED. Kearney.. • *. **** I | **** | ***** | ** •l
-DexterWernJr/DexterWernJr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
-    --->
-    --->
-            ($ 🏏🫆🖤🇬🇧
